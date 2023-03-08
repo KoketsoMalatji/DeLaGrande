@@ -1,5 +1,7 @@
 # HOTELIER
-Naturally inspiring your every sense!
+Hotelier is a 5-star hotel located in the shores of Mauritius.
+
+It is naturally inspires your every sense!
 
 # Rooms, Suites $ Villas
 A sophisticated hideaway offering space, intimacy and authenticity
