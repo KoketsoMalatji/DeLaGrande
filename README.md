@@ -31,7 +31,7 @@ Ile aux Cerfs Golf Club & Anahita Golf Club
 Green fees are inclusive for resort quests at these two iconic 18-hole championship golf courses, designed by legendary pro golfers.
 
 # Ilot Mangénie
-A private island paradise exclusive to Shangri-La's guests, featuring 3.5 kilometres of pristine beach, beach cabanas with dedicated butler service and it's own restaurant.
+A private island paradise exclusive to Hotelier's guests, featuring 3.5 kilometres of pristine beach, beach cabanas with dedicated butler service and it's own restaurant.
 
 # Unforgettable Events
 Design and enhance your event experiences with the very best of Hotelier
